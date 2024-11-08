@@ -2,6 +2,9 @@
 # output
 ![Screenshot 2024-11-08 141928](https://github.com/user-attachments/assets/cb4c9ea4-4036-47ff-98e1-a1b36e3997d7)
 ![Screenshot 2024-11-08 141943](https://github.com/user-attachments/assets/1cefb85f-3f75-4fb4-8084-71b2677bfb46)
+![Screenshot 2024-11-08 141952](https://github.com/user-attachments/assets/ffb0b035-491b-4a78-b159-7fd2d7d552f9)
+
+
 
 
 
